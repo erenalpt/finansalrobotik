@@ -1,0 +1,2 @@
+# finansalrobotik
+thy hisse
